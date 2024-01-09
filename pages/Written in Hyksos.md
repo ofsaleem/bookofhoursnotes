@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700957639816_0.png)
+- Written in Hyksos
+- A sly language.

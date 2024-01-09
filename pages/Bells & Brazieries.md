@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701093140290_0.png)
+- Bells & Brazieries
+- That resonance which lingers from the hammer's touch
+- [[Forge]], [[Sky]], [[Skill]], [[Ithastry]], [[Committed]], [[Attuned: Wist]]

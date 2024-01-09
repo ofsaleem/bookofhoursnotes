@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700957315901_0.png)
+- Written in Phrygian
+- The Phrygians worshipped the Great Mother, who we call the Grail. Theirs was the land in which the Sisterhood of the Knot was born, and this is the tongue in which the Thunderskin pleaded, at his ascension. [The Librarian can read Phrygian, but few others can.]

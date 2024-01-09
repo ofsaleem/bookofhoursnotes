@@ -1,0 +1,9 @@
+- Kitling Ripe and the Moldywarp's Grave (and Other Stories)
+- A lusciously illustrated tome of loosely connected children's stories. Few of them are remotely suitable for children.
+- I've Read...
+- When the Snake-Witch killed the horse, Kitling snatched one of its eyes. When the Dry-Witch killed the pig, Kitling stole a cup of its blood. Then she took them to the place Moldywarp lay buried, and she shook out her hair, and she began to dance�'
+- I'm Reading...
+- The protagonist, a speechless cat-thing called Kitling Ripe, performs a series of elaborate rites to rescue members of her extended family, culminating in the resurrection of her 'other grandmother', Moldywarp
+- [[Tally Price]] x2, [[Mystery: Moth]] x6, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Moth]] x6
+- #Books #Mastered
+- [[Memory]]: [[Memory: Impulse]]

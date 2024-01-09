@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701767035658_0.png)
+- Effective Against Theoplasmic Contamination
+- This skill can be used to remove Theoplasmic Contamination from books.

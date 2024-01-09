@@ -1,0 +1,4 @@
+- A Tower Rises
+- The phonograph is packaged in glossy card the bright pink of a dog-rose, with the words A TOWER RISES in nine languages on both sides. There is no other identifying information at all.
+- #books
+- [[Tally Price]], [[Mystery: Rose]] x18, [[Written in Vak]], [[Readable]], [[Thing]], [[Phonograph Record]]

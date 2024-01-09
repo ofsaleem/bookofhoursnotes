@@ -1,0 +1,3 @@
+- Yewgall Ink
+- A variant of iron gall ink, particularly difficult to erase; a minor Ink of Power.
+- [[Nectar]] x2, [[Thing]], [[Liquid]], [[Ink]]

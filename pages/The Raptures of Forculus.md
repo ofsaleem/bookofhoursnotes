@@ -1,0 +1,9 @@
+- The Raptures of Forculus
+- The first volume of Abbot Geffrey's hypothetical theological debates in the Socratic mode.
+- I've Read...
+- Geffrey discusses 'the signs that mark Doors', which might permit or forbid access to certain thoughts and dreams, speculating (carefully) on which of the sanctioned Hours might teach or govern each sign.
+- I'm Reading...
+- 'If Janus were an Hour, Forculus might be counted among his Names, but that door remains closed, and so Forculus is not…'
+- [[Tally Price]] x4, [[Mystery: Knock]] x4, [[Written in Latin]], [[Readable]], [[Thing]], [[Codex]], [[Mastery: Knock]] x4
+- #books #Mastered
+- [[Memory]]: [[Memory: Pattern]]

@@ -1,0 +1,4 @@
+- #Workstations hints: [[Sky]], [[Scale]]
+- ![image.png](../assets/image_1701204363058_0.png)
+- challenges: [[Evolve via Nyctodromy]]
+- workstation: [[Instrument]]

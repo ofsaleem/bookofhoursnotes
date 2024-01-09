@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700895014404_0.png)
+- Mystery: Knock
+- Greater challenges require stronger skills.

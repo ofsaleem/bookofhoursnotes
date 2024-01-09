@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700993980330_0.png)
+- Written in Deep Mandaic
+- A resonant language.

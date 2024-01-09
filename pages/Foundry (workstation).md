@@ -1,0 +1,2 @@
+- #Workstations hints: [[Knock]], [[Edge]], [[Scale]], [[Forge]]
+- ![image.png](../assets/image_1701208428775_0.png)

@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701418846825_0.png)
+- Birdsong
+- Music, riddles, miscellanea. 'Less a wisdom, more a body of gossip hallowed by accretion,' a sniffy scholar once remarked.

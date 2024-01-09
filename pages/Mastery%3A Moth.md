@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700996686372_0.png)
+- Mastery: Moth
+- I am well acquainted with this text.

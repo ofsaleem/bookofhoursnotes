@@ -1,0 +1,2 @@
+- #Workstations hints: [[Forge]], [[Knock]], [[Lantern]], [[Sky]]
+- ![image.png](../assets/image_1700911503000_0.png){:height 522, :width 664}

@@ -1,0 +1,3 @@
+- Beguiling Melody
+- A sweet enchantment of a song.
+- [[Grail]] x2, [[Sky]] x2, [[Memory]], [[Sound]]

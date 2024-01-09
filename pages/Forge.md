@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700896871074_0.png)
+- Forge
+- 'Fire', I once read, 'is the winter that warms and the spring that consumes.' [The principle of the Forge transforms and destroys.]

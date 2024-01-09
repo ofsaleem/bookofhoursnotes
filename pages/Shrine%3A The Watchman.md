@@ -1,0 +1,3 @@
+- #Workstations hints: [[Rose]], [[Sky]], [[Lantern]]
+- ![image.png](../assets/image_1701202133016_0.png)
+- [[Evolve via Illumination]]

@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700897001471_0.png)
+- Prentice-level Challenges
+- The simpler techniques require skill alone. [For basic recipes, provide five degrees of the relevant Aspect].

@@ -1,0 +1,4 @@
+- A Manual for Departure
+- The author, who identifies itself as the Jekadu, claims to be one of the Great Hooded Princes of the Land of the River. The style is informal, even chatty.
+- [[Tally Price]] x5, [[Mystery: Knock]] x14, [[Written in Vak]], [[Readable]], [[Thing]], [[Codex]]
+- #books

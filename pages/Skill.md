@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701094046765_0.png)
+- Skill
+- Anything can be learnt; everything can be forgotten.

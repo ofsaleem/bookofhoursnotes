@@ -1,0 +1,2 @@
+- #Workstations hints: [[Heart]], [[Knock]], [[Rose]], [[Moth]]
+- ![image.png](../assets/image_1701565182711_0.png)

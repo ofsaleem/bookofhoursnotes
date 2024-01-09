@@ -1,0 +1,3 @@
+- Cheerful Ditty
+- A rousing little rhythm.
+- [[Heart]] x2, [[Sky]], [[Memory]], [[Sound]]

@@ -1,0 +1,3 @@
+- Perinculate
+- Deadly. Use gloves to read texts produced with this pigment. An Ink of Power (sometimes considered an Unsanctioned Ink).
+- [[Edge]] x4, [[Scale]], [[Thing]], [[Ink]], [[Liquid]]

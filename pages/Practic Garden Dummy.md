@@ -1,0 +1,3 @@
+- #Workstations hints: [[Edge]], [[Scale]], [[Heart]], [[Winter]]
+- ![image.png](../assets/image_1700905219890_0.png)
+- challenges: [[Evolve via Illumination]], [[Prentice-level Challenges]] x5, [[Scholar-level Challenges]] x10, [[Keeper-level Challenges]] x15

@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1700981602254_0.png)
+- Catwink
+- The smell of catwink puts off vermin; but it is very difficult to read in sunlight. An Ink of Containment.
+- [[Moon]] x2, [[Scale]] x2, [[Thing]], [[Liquid]], [[Ink]]

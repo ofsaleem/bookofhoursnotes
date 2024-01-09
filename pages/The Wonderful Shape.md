@@ -1,0 +1,4 @@
+- The Wonderful Shape
+- Blessings and invocations of the Triple Knot recorded at a sanctuary in Cyprus notable for its weavers, sculptors, and gardeners.
+- [[Tally Price]] x5, [[Mystery: Grail]] x10, [[Written in Killasimi]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

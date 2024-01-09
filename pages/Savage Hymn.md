@@ -1,0 +1,3 @@
+- Savage Hymn
+- A music that urges valour and violence.
+- [[Scale]] x2, [[Sky]] x2, [[Memory]], [[Sound]]

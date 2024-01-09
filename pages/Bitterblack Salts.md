@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701095344711_0.png)
+- Bitterblack Salts
+- Bitter as chicory, dark as secrets, but the first rung of the traditional alchemical ascent.
+- [[Forge]], [[Thing]], [[Material]], [[Pigment]]

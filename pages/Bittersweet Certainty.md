@@ -1,0 +1,3 @@
+- Bittersweet Certainty
+- Eventually, the Sun-in-Rags always brings its beautiful ending.
+- [[Lantern]], [[Winter]] x2, [[Memory]], [[Sound]]

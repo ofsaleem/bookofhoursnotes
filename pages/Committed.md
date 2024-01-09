@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701093236679_0.png)
+- Committed
+- You've determined where this skill should belong, in the wide kingdoms of understanding. [This skill is now committed to the Wisdom marked on the card.]

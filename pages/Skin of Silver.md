@@ -1,0 +1,9 @@
+- Skin of Silver
+- The epic of the final battle of the Lionsmith with the remnant-giant Antaios.
+- I've Read...
+- The Lionsmith beseeches the Three for their assistance, and the Meniscate favours him with a skin of silver, like water, like mercury, so he too can drink power from the Moon; for, she whispers, he too will one day be drawn into a perfect balance.
+- I'm Reading...
+- As always, the Lionsmith drew his strength from metal, and Antaios from stone� but the Lionsmith began to suspect also that this time, Antaios was drawing power from the Moon.
+- [[Tally Price]] x5, [[Mystery: Forge]] x10, [[Written in Deep Mandaic]], [[Thing]], [[Readable]], [[Codex]], [[Mastery: Forge]] x10
+- #Books #Mastered
+- [[Memory]]: [[Memory: Fear]]

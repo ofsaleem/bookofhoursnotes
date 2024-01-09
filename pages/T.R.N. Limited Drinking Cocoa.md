@@ -1,0 +1,3 @@
+- T.R.N. Limited Drinking Cocoa (Pot)
+- T.R.N.'s Spices and Savours Department markets this as 'the Secret Sacrament of the Last Inca!'
+- [[Forge]] x2, [[Heart]], [[Thing]], [[Liquid]], [[Beverage]], [[Restorative]]

@@ -1,0 +1,9 @@
+- The World Despoil'd
+- Subtitled 'the Flowers in the Waste': a epic poem that presents a medical treatise through allegory. The author is Gideon Dewulf, 5th Baron Brancrug, sometimes unkindly called 'the Cutter'.
+- I've Read...
+- Gideon concludes with a concrete example: that the Mysteries can be used to despoil 'mine own Soaks', but then the Soak can then be refined with sufficient Heart into 'the sanguis saltandis'.
+- I'm Reading...
+- The poem is a substantial variation on the Fisher-King tale. A wounded wasteland monarch learns that he and his land can be cured, but that the cure is their own response to ever more savage maladies�
+- [[Tally Price]] x3, [[Mystery: Moon]] x6, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Moon]] x6
+- #Books #Mastered
+- [[Memory]]: [[Memory: Solace]]

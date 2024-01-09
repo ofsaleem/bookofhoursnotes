@@ -1,0 +1,4 @@
+- On Imperfections
+- Poemander, light-smith and Lantern-long, describes the process of 'transinhabitation', which he calls 'a manifestation of imperfection.'
+- [[Tally Price]] x3, [[Mystery: Knock]] x10, [[Readable]], [[Thing]], [[Codex]]
+- #Books

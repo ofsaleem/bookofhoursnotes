@@ -1,0 +1,3 @@
+- Memory: Regret
+- Every choice has its shadow.
+- [[Forge]], [[Winter]] x2, [[Memory]]

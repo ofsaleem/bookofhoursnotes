@@ -1,0 +1,4 @@
+- A Descent of the Shell
+- A treatise on eggs, light, and optics by Abbess Melancthe, dazzlingly illuminated with renderings of the Abbess' visions.
+- [[Tally Price]] x4, [[Mystery: Forge]] x14, [[Fifth Eye Curse]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

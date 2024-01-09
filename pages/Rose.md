@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700896889784_0.png)
+- Rose
+- 'The rose which encompasseth all'. Nine directions to new horizons. [Exploration? Enlightenment? Hope?]

@@ -1,0 +1,2 @@
+- #Workstations hints: [[Lantern]], [[Rose]], [[Sky]], [[Heart]]
+- ![image.png](../assets/image_1701376024434_0.png){:height 455, :width 670}

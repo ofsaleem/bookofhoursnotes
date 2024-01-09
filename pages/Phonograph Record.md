@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700978659601_0.png)
+- Phonograph Record
+- A labyrinth of eager grooves awaits the stylus. ['Readable' in only the broadest sense. Find a Phonograph to play this.]

@@ -1,0 +1,3 @@
+- The Radical Measure (Glossed)
+  The original 'Radical Measures' was a manifesto for experimental poetry with occult properties, written in the nineteenth century by Dr Arun Peel. The original is notoriously incoherent - much later, Christopher Illopoly took on the task of editing and glossing it. He has taken some liberties, but the updated version is generally well regarded.
+- [[Tally Price]], [[Mystery: Rose]] x12, [[Readable]], [[Thing]], [[Codex]]

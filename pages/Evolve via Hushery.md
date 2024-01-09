@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700914264527_0.png)
+- Evolve via Hushery
+- I could use Hushery with this to evolve my Soul. [Once you've committed a skill to the Hushery Wisdom, you can use that skill with this to combine two identical Soul cards into a greater one. But you must use a skill you've attuned to that Wisdom, and the attunement will only work once.]

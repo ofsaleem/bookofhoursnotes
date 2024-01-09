@@ -1,0 +1,9 @@
+- Sunrise Awakenings
+- An uncharacteristically poignant meditation by the Edge-long Twrog of Meirionnydd, who later came to Hush House under a variety of other names, often in search of some sort of fight.
+- I've Read...
+- Each day's light, Twrog suggests, is faintly touched by the light of every past day; so in the light of every present day, we may begin to understand something of days to come. At least, this appears to be his conclusion, but he stops in mid-sentence, apparently having lost patience with the act of writing, or possibly been ambushed.
+- I'm Reading...
+- 'If Light were not silent, it would be Music. If Music were visible, it would be Light�'
+- [[Tally Price]] x3, [[Mystery: Lantern]] x4, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Lantern]]
+- #Books #Mastered
+- [[Memory]]: [[Memory: Revelation]]

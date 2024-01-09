@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700988354890_0.png)
+- Mastery: Edge
+- I am well acquainted with this text.

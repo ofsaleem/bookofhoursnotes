@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701201651171_0.png)
+- Sea Stories
+- The sea has always been the widest road.
+- [[Forge]], [[Moon]], [[Skill]], [[Nyctodromy]], [[Committed]], [[Attuned: Shapt]]

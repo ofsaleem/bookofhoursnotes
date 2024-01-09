@@ -1,0 +1,3 @@
+- Memory: Storm
+- There are storms great enough to shake the moon from the sky, and one's thoughts from one's skull.
+- [[Heart]] x2, [[Sky]] x2, [[Memory]]

@@ -1,0 +1,2 @@
+- #Workstations hints: [[Forge]], [[Rose]], [[Moth]], [[Heart]]
+- ![image.png](../assets/image_1701564809698_0.png){:height 453, :width 670}

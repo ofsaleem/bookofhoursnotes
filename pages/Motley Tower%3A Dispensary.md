@@ -1,0 +1,13 @@
+- Motley Tower: Dispensary
+  This room may originally have served as a working dispensary, but some at least of its more eccentric fittings were added by Christopher Illopoly in his time here. By that point he had severed ties with his adoptive father. He'd been using the Illopoly name for years and had no access to the Strathcoyne fortune - but 'Traveling at Night' had sold surprisingly well (much better than his poetry) and he had a little money of his own by then - enough to indulge his preferences.
+- [[Motley Tower: Dispensary left shelf]]
+	- [[The Viennese Conundra]]
+	- [[The Locksmith's Dream: Stolen Reflections]]
+	- [[Wainscot Histories]]
+- [[Motley Tower: Dispensary middle shelf]]
+	- [[What Does Not Bark]]
+	- [[The Berrybook]]
+- [[Motley Tower: Dispensary right shelf]]
+	- [[Prophecies of Glory]]
+	- [[Perugian Diaries]]
+- [[Dispensary]]

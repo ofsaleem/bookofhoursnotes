@@ -1,0 +1,3 @@
+- Memory: Pattern
+- Something fits just right.
+- [[Forge]], [[Knock]] x2, [[Memory]]

@@ -1,0 +1,4 @@
+- The Gospel of Zacchaeus
+- An extremely heterodox account of the Nazarene Messiah and his works, describing his ascension to the Mansus through the opening of his body.
+- [[Tally Price]] x4, [[Written in Greek]], [[Mystery: Knock]] x8, [[Readable]], [[Thing]], [[Codex]]
+- #Books

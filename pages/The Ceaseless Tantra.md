@@ -1,0 +1,9 @@
+- The Ceaseless Tantra
+- The avant-garde choreographer Nicholas Keirle supposedly incorporated this Tantra into his menacing ballets.
+- I've Read...
+- 'That which does not cease, is not ceased.'
+- I'm Reading...
+- The Ceaseless Tantra is devoted mostly to warnings about the lively creatures called Percussigants, but concludes with a chant which can be used to summon them. It observes that Percussigants can be taught any dance, but they prefer only one.
+- [[Tally Price]] x2, [[Mystery: Heart]] x6, [[written in sanskrit]], [[Readable]], [[thing]], [[codex]], [[Mastery: Heart]] x6
+- #Books #Mastered
+- [[memory]]: [[Memory: Impulse]]

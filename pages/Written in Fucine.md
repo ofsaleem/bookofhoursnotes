@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700963118761_0.png)
+- Written in Fucine
+- A dry language.

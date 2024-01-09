@@ -1,0 +1,9 @@
+- The Skeleton Songs
+- Poems of greedy delight composed by the possibly pseudonymous Arabella Dusk, the rumoured heiress-turned-madam-turned-poetess.
+- I've Read...
+- The Twenty-Six Delightful Fruits; the Seven Chastisements; the Nine Gardens; the Four Regrets.
+- I'm Reading...
+- In Arabella's introduction, she explains that the book was to be illustrated, but that the Suppression Bureau would not permit it. She hints that the illustrations still exist somewhere. The book is dedicated to 'Sir Parsival of the Red Cup'.
+- [[Tally Price]], [[Mystery: Grail]] x4, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Grail]] x4
+- #Books #Mastered
+- [[Memory]]: [[Beguiling Melody]]

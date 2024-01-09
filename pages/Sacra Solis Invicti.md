@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701210170286_0.png)
+- Sacra Solis Invicti
+- The rites of the Church of the Unconquered Sun, and certain secrets of the gods-from-Light.
+- [[Lantern]], [[Forge]], [[Skill]], [[Horomachistry]], [[Committed]], [[Attuned: Fet]], [[Effective Against Curses]]

@@ -1,0 +1,9 @@
+- Calicite Supplications
+- Prayers addressed to the Red Grail by the Sisterhood of the Triple Knot.
+- I've Read...
+- One prayer describes how sufficient Grail-aspect can be used with Tridesma Hiera rites to give 'a life, a little life, a little little life' to a doll twisted from fabric…
+- I'm Reading...
+- 'If we should remember not, let our children remember, in their redmost dreams…'
+- [[Tally Price]] x4, [[Mystery: Grail]] x8, [[Written in Greek]], [[Readable]], [[Thing]], [[Codex]], [[Mastery: Grail]] x8
+- #Books #Mastered
+- [[Memory]]: [[Memory: Satisfaction]]

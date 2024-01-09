@@ -1,0 +1,22 @@
+- Vestibulum Transitus
+- 'Vestibulum Transitus' was the wry name the Curia gave this structure. Before that it was 'Valentine's Bridge', the sheltered crossing beyond which Baron Valentine's solitude was assured.
+- this room has way too many shelves so im only doing three: left right and center
+- [[Vestibulum Transitus left shelf]]
+	- [[The Wind's Ruin]]
+	- [[The Focus of Amber]]
+	- [[The Sky, The Soul]]
+	- [[Medusa's Lament]]
+	- [[The Alloy of the White Rose]]
+	- [[The Morphy Codex]]
+- [[Vestibulum Transitus middle shelf]]
+	- [[The Carmine Petal: Revised]]
+	- [[A Novel Method for Invocation & Contrition]]
+	- [[A Pale Lady and a Prince of Wines]]
+	- [[Sunrise Awakenings]]
+- [[Vestibulum Transitus right shelf]]
+	- [[Stolen Histories]]
+	- [[Fekri's Herbary]]
+	- [[An Investigation of A Foundered Country]]
+	- [[The Wonderful Shape]]
+	- [[The Manner in wich the Alchemist was Spared]]
+	- [[Cucurbit Prisoner Records 1927]]

@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700979134716_0.png)
+- Mastery: Scale
+- I am well acquainted with this text.

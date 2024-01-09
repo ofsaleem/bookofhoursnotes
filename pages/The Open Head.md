@@ -1,0 +1,4 @@
+- THE OPEN HEAD
+- Ilse Bischoff's hallucinatory quasi-documentary, notionally about the Greco-Turkish War of the previous decade.
+- [[tally price]], [[Mystery: Edge]] x8, [[Written in Hyksos]], [[Readable]], [[Thing]], [[Reel of Film]]
+- #books

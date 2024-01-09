@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700993811813_0.png)
+- Written in Cracktrack
+- A primal language.

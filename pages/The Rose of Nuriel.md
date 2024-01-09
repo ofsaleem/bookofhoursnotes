@@ -1,0 +1,4 @@
+- The Rose of Nuriel
+- A volume of collected teachings of the Sisterhood of the Knot, that arcane-contemplative order that existed in all histories, but in some was very powerful indeed. This was recorded by 'Nuriel', and dedicated to St Tryphon.
+- [[Tally Price]] x4, [[Mystery: Grail]] x10, [[Written in Greek]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

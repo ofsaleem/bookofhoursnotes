@@ -1,0 +1,4 @@
+- Cucurbit Prisoner Records 1927
+- Accounts by Governor Collers' private secretary of interventions and experiments in the last years of the Cucurbit prison, focusing particularly on prisoners he believes might have Carapace Cross lineage.
+- [[Tally Price]], [[Mystery: Nectar]] x12, [[Readable]], [[Thing]], [[Codex]]
+- #Books

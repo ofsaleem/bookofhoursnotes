@@ -1,0 +1,4 @@
+- The Carbonek Schism
+- The order of Obliviates, on the brink of schism, assembles in a Bounds-house identified only as 'Carbonek', after the Fisher-King's castle of legend. There the Know and the Long of the order debate their long policy of non-involvement in 'matters of Feather and Scale'.
+- [[Tally Price]] x3, [[Mystery: Moth]] x6, [[Written in Sabazine]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

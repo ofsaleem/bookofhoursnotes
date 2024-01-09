@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701054899262_0.png)
+- Mastery: Rose
+- I am well acquainted with this text.

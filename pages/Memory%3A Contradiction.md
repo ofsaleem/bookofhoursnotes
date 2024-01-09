@@ -1,0 +1,3 @@
+- Memory: Contradiction
+- Something uncomfortable.
+- [[Edge]] x2, [[Moon]], [[Memory]]

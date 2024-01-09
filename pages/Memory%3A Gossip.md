@@ -1,0 +1,3 @@
+- Memory: Gossip
+- Frivolous, but tasty.
+- [[Grail]], [[Rose]] x2, [[Memory]]

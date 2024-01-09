@@ -1,0 +1,5 @@
+- Practice Equipment
+- Still the best place in the House to get hurt.
+- #Workstations hints: [[edge]], [[scale]], [[lantern]], [[heart]]
+- ![image.png](../assets/image_1701062598561_0.png)
+- challenges: [[evolve via illumination]]

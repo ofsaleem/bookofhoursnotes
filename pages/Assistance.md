@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700901627812_0.png)
+- Assistance
+- The Librarian lives alone. But there's no shame in seeking assistance from others. [Assistance can open new rooms or help with your studies. It disappears when used, or at dawn.]

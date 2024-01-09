@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701098251961_0.png)
+- The Great Signs and the Great Scars
+- Some glyphs are too obscure to reside in any language, but too potent to remain unwritten.
+- [[Grail]], [[Knock]], [[Skill]], [[Horomachistry]], [[Committed]], [[Attuned: Fet]]

@@ -1,0 +1,4 @@
+- The Tantra of Worms
+- The entomologist Juliana Zawistowski eventually came to insist that this text was written by insects inhabiting a human skin. She never presented evidence for her claim. There are diagrams. The diagrams are not good to look upon.
+- [[Tally Price]], [[Written in Sanskrit]], [[Mystery: Scale]] x8, [[Readable]], [[Thing]], [[Codex]]
+- #Books

@@ -1,0 +1,3 @@
+- Memory: Satisfaction
+- Some appetites are easier to satisfy than others.
+- [[Grail]] x2, [[Heart]], [[Memory]]

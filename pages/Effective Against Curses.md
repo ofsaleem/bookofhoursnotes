@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701210208344_0.png)
+- Effective Against Curses
+- This skill can be used to remove Curses from books.

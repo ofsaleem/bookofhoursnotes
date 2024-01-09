@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700901177855_0.png)
+- Mastery: Winter
+- I am well acquainted with this text.

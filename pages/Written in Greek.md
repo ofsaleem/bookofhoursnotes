@@ -1,0 +1,2 @@
+- Written in Greek
+- A tongue for philosophers, theologians and heroes. [The Librarian reads Greek, but don't assume others can.]

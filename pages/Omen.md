@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701052277136_0.png)
+- Omen
+- Those who know, see; those who see, know.

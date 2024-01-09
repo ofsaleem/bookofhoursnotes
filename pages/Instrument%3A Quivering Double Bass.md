@@ -1,0 +1,4 @@
+- #Workstations hints: [[Sky]], [[Forge]]
+- ![image.png](../assets/image_1701206682599_0.png)
+- challenges: [[Evolve via Birdsong]]
+- workstation: [[Instrument]]

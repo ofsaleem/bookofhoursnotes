@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700896156030_0.png)
+- Ink
+- If it scrawls, mix it.

@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1700978222189_0.png)
+- Ashartine
+- Lies written in Ashartine tend to fade or be misspelt. It's legible in the dark. An Ink of Revelation.
+- [[Lantern]] x6, [[Sky]] x2, [[Thing]], [[Liquid]], [[Ink]]

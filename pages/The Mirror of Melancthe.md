@@ -1,0 +1,4 @@
+- The Mirror of Melancthe
+- The day-book and dream-journal of Abbess Melancthe, venerated as a saint and respected as an alchemist.
+- [[Tally Price]] x4, [[Mystery: Sky]] x12, [[Readable]], [[Thing]], [[Codex]]
+- #Books

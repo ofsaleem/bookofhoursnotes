@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700991195965_0.png)
+- Witchworms
+- Tiny larvae with half-human faces. Fortunately, they rarely develop into their imago stage; but even as larvae, their whispering can torment senses and distort thoughts. [These can affect your Shapt and Wist, and spread to nearby objects. You can remove them with a skill that's effective against Infestations, and at least 7 Winter.]

@@ -1,0 +1,4 @@
+- The Focus of Amber
+- Omar, the Blaze, spent seven years manning a lighthouse in Tyre, in atonement for the extinguishing of a sacred flame. By the end of his stint, he was so terrified of fire that he could not stand to share a room with a candle. This work was written in partial penance.
+- [[Tally Price]] x5, [[Written in Deep Mandaic]], [[Mystery: Sky]] x16, [[Readable]], [[Thing]], [[Codex]]
+- #Books

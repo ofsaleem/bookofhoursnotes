@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700980151105_0.png)
+- Material
+- Something with the potential to become something. If I put it in something.

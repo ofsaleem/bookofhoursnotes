@@ -1,0 +1,4 @@
+- #Workstations hints: [[Lantern]],  [[Forge]], [[Grail]], [[Sky]]
+- ![image.png](../assets/image_1701053662860_0.png)
+- [[Patient's Lounge top shelf]]
+	- [[The Open Head]]

@@ -1,0 +1,3 @@
+- #Workstations hints: [[Sky]], [[Forge]]
+- ![image.png](../assets/image_1700914145348_0.png)
+- [[Workstations]]: [[Instrument]]

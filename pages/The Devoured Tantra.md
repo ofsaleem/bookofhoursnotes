@@ -1,0 +1,9 @@
+- The Devoured Tantra
+- The diplomat-priest Stanislav John Schaller transcribed this from the library of a Red Long, but his manuscript remains in a private collection in Kerisham.
+- I've Read...
+- 'A million blazing fires in the belly engulf what has been swallowed by the multiform mouths.'
+- I'm Reading...
+- The Devoured Tantra warns of the uses and dangers of appetite, but devotes an entire passage to the 'star-limbed hunger-bringers', who it describes with obvious affection.
+- [[Tally Price]] x2, [[Mystery: Grail]] x6, [[Written in Sanskrit]], [[Readable]], [[Codex]], [[Mastery: Grail]] x6
+- #Books #Mastered
+- [[Memory]]: [[Confounding Parable]]

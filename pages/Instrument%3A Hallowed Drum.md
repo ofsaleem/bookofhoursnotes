@@ -1,0 +1,4 @@
+- #Workstations hints: [[Sky]], [[Heart]]
+- ![image.png](../assets/image_1701206375883_0.png)
+- challenges: [[Evolve via Preservation]]
+- workstation: [[Instrument]]

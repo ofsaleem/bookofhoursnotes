@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701095394909_0.png)
+- Pigment
+- Call it a colour, call it a stain, call it a jewel-in-waiting.

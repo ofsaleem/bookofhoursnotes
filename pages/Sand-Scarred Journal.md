@@ -1,0 +1,4 @@
+- Sand-Scarred Journal
+- I am the Librarian of Hush House, and this journal will record what arose from my Crime and my Curse. [The Archaeologist's dearest wish, when they came to the House, was to record a History where their crime could be forgiven... or redefined. But you can complete the game by recording any History. You might wish to begin your studies with the Skolekosophy Wisdom.]
+- #Books #Mastered
+- [[Knock]], [[Mystery: Winter]], [[Memories: The Archaeologist]], [[Readable]], [[Thing]], [[Codex]], [[Mastery: Winter]]

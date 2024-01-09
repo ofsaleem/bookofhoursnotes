@@ -1,0 +1,9 @@
+- Against Vitruvius
+- A fourteenth-century treatise on esoteric mechanics and parahydraulics by Abbot Ranulph, best known now as a mason-architect.
+- I've Read...
+- Ranulph mentions that the tower of Ely Cathedral collapsed around the time the Winter Tower was completed� although he stops short of suggesting that one was the cause of another. 'A tower falls, a tower rises,' is all he'll commit to.
+- I'm Reading...
+- Ranulph describes how he tested some of these techniques in the construction of the Winter Tower (now called the Long Tower). He admits to unexpected consequences�
+- [[Tally Price]] x4, [[Mystery: Sky]] x6, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Sky]] x6
+- #Books #Mastered
+- [[Memory]]: [[Memory: Pattern]]

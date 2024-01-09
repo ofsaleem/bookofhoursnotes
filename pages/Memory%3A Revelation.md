@@ -1,0 +1,3 @@
+- Memory: Revelation
+- Some truths come to us from outside, or above.
+- [[Lantern]] x2, [[Memory]]

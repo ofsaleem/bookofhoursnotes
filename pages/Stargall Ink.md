@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701056178195_0.png)
+- Stargall Ink
+- An ink traditionally (but only rarely) made with meteoric iron; a minor Ink of Power.
+- [[Sky]] x2, [[Thing]], [[Liquid]], [[Ink]]

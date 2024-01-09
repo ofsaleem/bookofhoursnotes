@@ -1,0 +1,3 @@
+- #Workstations hints: [[Sky]], [[Moth]]
+- ![image.png](../assets/image_1700977096703_0.png)
+- [[Workstations]]: [[Instrument]]

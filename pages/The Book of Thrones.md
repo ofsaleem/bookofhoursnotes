@@ -1,0 +1,4 @@
+- The Book of Thrones
+- A legend of the Shadowless Empire, transcribed by Alexander Peterhans from annals at a secret shrine in Anatolia.
+- [[Tally Price]] x2, [[Mystery: Edge]] x12, [[Written in Phrygian]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

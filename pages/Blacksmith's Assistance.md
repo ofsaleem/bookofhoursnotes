@@ -1,0 +1,5 @@
+- ![image.png](../assets/image_1700901935612_0.png)
+- Blacksmith's Assistance
+- Denzil the blacksmith will lend me his strength for the day. [Make use of the Blacksmith's help before dawn.]
+- [[Edge]] x2, [[Forge]] x2, [[Assistance]], [[An Introduction]]
+- #Assistants

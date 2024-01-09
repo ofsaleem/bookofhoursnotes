@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700963105737_0.png)
+- Mystery: Moth
+- Greater challenges require stronger skills.

@@ -1,0 +1,4 @@
+- Medusa's Lament
+- On the death of the Hour called Seven-Coils, 'the Father of the Mother'.
+- [[Tally Price]] x4, [[Written in Greek]], [[Mystery: Scale]] x14, [[Readable]], [[Thing]], [[Codex]]
+- #Books

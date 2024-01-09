@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700898161155_0.png){:height 511, :width 664}
+- #Workstations hints: [[Edge]], [[Grail]], [[Moon]], [[Winter]]
+- challenges: [[Prentice-level Challenges]] x5, [[Scholar-level Challenges]] x10, [[Keeper-level Challenges]] x15

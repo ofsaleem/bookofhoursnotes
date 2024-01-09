@@ -1,0 +1,6 @@
+- Mazarine Room
+- "Kitty's pride, and the House's joy." Kitty Mazarine was better known for her vocal compositions, but she was a versatile musician, and on winter evenings she'd invite visitors and villagers alike to her recitals.
+- [[Instrument: Hallowed Drum]]
+- [[Instrument: Grand Piano]]
+- [[Instrument: Sunset Harp]]
+- [[Instrument: Quivering Double Bass]]

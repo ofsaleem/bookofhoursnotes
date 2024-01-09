@@ -1,0 +1,3 @@
+- Westcott's Compounds
+- Reagents and activants to enhance alchemical operations, or the flavour of one's pipe tobacco.
+- [[Forge]] x2, [[Grail]], [[Lantern]], [[Moth]], [[Nectar]], [[Thing]], [[Material]]

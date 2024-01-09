@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701100101603_0.png)
+- Perhibiate
+- Which binds to the one whose name is there written. A minor Ink of Power.
+- [[Heart]] x2, [[Lantern]] x2, [[Scale]] x2, [[Winter]], [[Thing]], [[Liquid]], [[Ink]]

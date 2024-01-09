@@ -1,0 +1,4 @@
+- The Book of Dissolution
+- Alexander Probst recovered a copy of this work from a mountain-temple in Persia. Other copies surface now and then, usually seared on rock.
+- [[Tally Price]] x5, [[Mystery: Forge]] x12, [[Written in Deep Mandaic]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

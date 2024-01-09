@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701101557198_0.png)
+- Snow Stories
+- Of wind, woe, and winter.
+- [[Moon]] x3, [[Winter]] x4, [[Skill]], [[Hushery]], [[Committed]], [[Attuned: Wist]]

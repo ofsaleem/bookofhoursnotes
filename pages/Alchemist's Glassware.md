@@ -1,0 +1,2 @@
+- #Workstations hints: [[Winter]], [[Lantern]], [[Grail]], [[Forge]]
+- ![image.png](../assets/image_1701056115777_0.png)

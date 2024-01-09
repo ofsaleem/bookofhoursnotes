@@ -1,0 +1,4 @@
+- Memory: Intuition
+- You just know, you know?
+- [[Moon]] x2, [[Rose]] x2, [[Memory]]
+- #Memories

@@ -1,0 +1,4 @@
+- My Deeds, My Powers, My Achievements and the Injustices Perpetrated Against Me
+- A diatribe by Hokobald of Pocsind, formerly of the order of immortals called the House of Lethe (later the Ordo Limiae; much latter the Obliviates). He has scores to settle.
+- [[Tally Price]] x4, [[Mystery: Forge]] x16, [[Written in Deep Mandaic]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

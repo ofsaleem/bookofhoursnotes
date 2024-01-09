@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701099524202_0.png)
+- Mastery: Grail
+- I am well acquainted with this text.

@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700891137557_0.png)
+- [[Lantern]], [[Nectar]] x2, [[Thing]], [[Liquid]], [[Beverage]], [[Restorative]], [[To Serve]]
+-

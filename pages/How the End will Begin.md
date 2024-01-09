@@ -1,0 +1,4 @@
+- How the End will Begin
+- A prophecy of the Wars of the Roads, recorded in the Subcontinent in the days before the Great Hooded Princes.
+- [[Tally Price]] x5, [[Mystery: Edge]] x14, [[Written in Vak]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

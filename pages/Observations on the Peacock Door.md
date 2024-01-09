@@ -1,0 +1,4 @@
+- Observations on the Peacock Door
+- Ninegala of Lagash discusses the Peacock Door, the highest door available to mortals in the Mansus: 'a rent, an imperfection, an abrasion.'
+- [[Tally Price]] x4, [[Mystery: Moon]] x10, [[Written in Vak]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

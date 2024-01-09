@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1700990364313_0.png)
+- Houndsgall
+- Books written in Houndsgall are more likely to return to their owner, or one to whom they have been legitimately sold. An Ink of Containment.
+- [[Heart]] x2, [[Scale]] x5, [[Thing]], [[Liquid]], [[Ink]]

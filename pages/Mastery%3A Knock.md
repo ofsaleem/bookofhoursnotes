@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700996381211_0.png)
+- Mastery: Knock
+- I am well acquainted with this text.

@@ -1,0 +1,2 @@
+- #Workstations hints: [[Lantern]], [[Grail]], [[Nectar]], [[Heart]]
+- ![image.png](../assets/image_1701763778916_0.png)

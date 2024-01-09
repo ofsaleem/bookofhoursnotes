@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700980162044_0.png)
+- Remains
+- This is how you know who was mortal.

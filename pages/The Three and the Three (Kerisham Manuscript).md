@@ -1,0 +1,4 @@
+- The Three and the Three (Kerisham Manuscript)
+- A more recent version of a much older text, this book describes the operations of the Chancel and the Calyptra, two triads of Hours with subtle, far-reaching powers and responsibilities. It has been heavily censored, but even so contains potent secrets.
+- [[Tally Price]] x2, [[mystery: moon]] x10, [[readable]], [[Thing]], [[Codex]]
+- #Books

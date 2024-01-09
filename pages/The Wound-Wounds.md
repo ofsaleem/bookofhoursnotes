@@ -1,0 +1,4 @@
+- The Wound-Wounds
+- 'A history of a hundred wars', sewn into a design of metallic threads that pursues itself across every page...
+- [[Tally Price]] x2, [[Mystery: Edge]] x18, [[Written in Killasimi]], [[Readable]], [[Thing]], [[Codex]]
+- #books

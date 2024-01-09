@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700898371195_0.png){:height 517, :width 664}
+- #Workstations hints: [[Lantern]], [[Scale]], [[Sky]], [[Winter]]
+- challenges: [[Prentice-level Challenges]] x5, [[Scholar-level Challenges]] x10, [[Keeper-level Challenges]] x15

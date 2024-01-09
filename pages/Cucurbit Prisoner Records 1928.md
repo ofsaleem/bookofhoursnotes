@@ -1,0 +1,4 @@
+- Cucurbit Prisoner Records 1928
+- Accounts by Governor Collers' private secretary of interventions and experiments in the last years of the Cucurbit prison, focusing particularly on the 'hill-children', wild Wood-things that have found a shape in the physical world.
+- [[Tally Price]], [[Mystery: Scale]] x12, [[Readable]], [[Thing]], [[Codex]]
+- #Books

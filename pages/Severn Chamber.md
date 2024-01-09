@@ -1,0 +1,12 @@
+- Severn Chamber
+  In the days of the Dewulfs, this chamber was reserved for the heir of the House - though it was originally furnished for Hafren, the woman of 'uncertain lineage' who became Baron Walter's mother and bequeathed her unusual pale eyes and hair to Walter and his descendants.
+- [[Severn Chamber top left shelf]]
+- [[Severn Chamber bottom left shelf]]
+	- [[The Incandescent Tantra]]
+	- [[One Hundred and Eight]]]
+	- [[On the Matter and the Deeds of Serpents]]
+- [[Severn Chamber top right shelf]]
+- [[Severn Chamber bottom right shelf]]
+- [[Guest Bed: Severn Chamber]]
+- [[Ashartine]]
+- [[Thirza's Phonograph]]

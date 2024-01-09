@@ -1,0 +1,4 @@
+- Memory: Hindsight
+- Some things we can only really understand when they're gone.
+- [[Scale]], [[Winter]] x2, [[Memory]]
+- #Memories

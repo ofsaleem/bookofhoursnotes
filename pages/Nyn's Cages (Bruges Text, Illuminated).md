@@ -1,0 +1,4 @@
+- Nyn's Cages (Bruges Text, Illuminated)
+- The 'merciful measures' of the witch Nyn. This is only a partial version of the original, but it contains illustrations by Nyn's pupil, Mabelie of Bruges, which supplement the original.
+- [[Tally Price]] x4, [[Written in Ericapaean]], [[Mystery: Winter]] x10, [[Readable]], [[Thing]], [[Codex]]
+- #Books

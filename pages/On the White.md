@@ -1,0 +1,9 @@
+- On the White
+- Solomon Husher writes, perhaps allegorically, of Winter, and its long slow doomed romance with the Sun. The epigraph is 'Sunset at Noon'.
+- I've Read...
+- Husher writes distractedly about his suspicion of colours and his yearning for death. He hints at a Great Work he has envisaged, or begun, where the 'palest of paintings' will enthral the world. He returns again and again to certain compelling phrases which he claims are the 'secret words of Winter'.
+- I'm Reading...
+- On closer investigation, the work seems to be a theory of aesthetics, or perhaps a set of warnings about the dangers of painting.
+- [[Tally Price]] x2, [[Mystery: Winter]] x6, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Winter]] x6
+- #Books #Mastered
+- [[Memory]]: [[Memory: Regret]]

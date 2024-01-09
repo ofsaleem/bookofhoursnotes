@@ -1,0 +1,3 @@
+- #Workstations hints: [[Scale]], [[Heart]], [[Knock]], [[Winter]]
+- ![image.png](../assets/image_1700910629020_0.png)
+- challenges: [[Prentice-level Challenges]] x5, [[Scholar-level Challenges]] x10, [[Keeper-level Challenges]] x15

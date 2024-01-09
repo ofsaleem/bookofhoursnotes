@@ -1,0 +1,3 @@
+- #Workstations hints: [[Rose]], [[Sky]], [[Heart]], [[Knock]]
+- ![image.png](../assets/image_1700979754961_0.png)
+- challenges: [[Evolve via Nyctodromy]]

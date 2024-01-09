@@ -1,0 +1,3 @@
+- Earth-Sign
+- 'In the Tracks of Beasts, in the Convolutions of his own Carapace, in Egg-vein and Shell-shadow, the Many-Eyed One found the Signs which can be History.' An Earth-Sign is an auspice traced on the cloaked shape of the earth, perceptible to the sensitive, interpreted only by the wise.
+- [[Nectar]] x2, [[Scale]] x2, [[Evolve via Skolekosophy]], [[Memory]], [[Persistent]], [[Omen]]

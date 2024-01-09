@@ -1,0 +1,9 @@
+- Cardea's Delights
+- The third volume of Abbot Geffrey's hypothetical theological dialogues in the Socratic mode.
+- I've Read...
+- Geffrey discusses the 'living Signs' -signs which change their shape, and whose flexibility is part of what makes it identifiable. He gives as one example 'the Paradox of the Hinge', and draws comparisons with the 'Names' called Twins (who would be considered Hours beyond the Church). He hints at the 'Amethyst Vessel' which can be sanctified by the Great Signs in the presence of Knock...
+- I'm Reading...
+- 'If Janus were an Hour, Cardea might be counted among his Names, but the world has never turned in such a manner, and so she is not�'
+- [[Tally Price]] x4, [[Mystery: Knock]] x8, [[Written in Latin]], [[Readable]], [[Thing]], [[Codex]], [[Mastery: Knock]] x8
+- #Books #Mastered
+- [[Memory]]: [[Memory: Pattern]]

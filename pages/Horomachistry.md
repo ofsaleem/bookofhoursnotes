@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701098303735_0.png)
+- Horomachistry
+- This Wisdom is concerned with the laws (and disagreements) of the Hours (and their emanations).

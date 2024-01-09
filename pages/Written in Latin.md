@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700957224705_0.png)
+- Written in Latin
+- A dead language: dead as diamonds. [The Librarian reads Latin, but don't assume others can.]

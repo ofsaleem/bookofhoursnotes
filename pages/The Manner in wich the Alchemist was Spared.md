@@ -1,0 +1,4 @@
+- The Manner in which the Alchemist was Spared
+- In 1782, Ana�l Verdier used this text as the basis for a presentation to the Academy of Sciences in Paris. He was executed in secret the following morning without trial.
+- [[Tally Price]] x2, [[Mystery: Forge]] x14, [[Written in Vak]], [[Readable]], [[Thing]], [[Codex]]
+- #books

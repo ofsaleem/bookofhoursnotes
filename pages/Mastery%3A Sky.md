@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700958700644_0.png)
+- Mastery: Sky
+- I am well acquainted with this text.

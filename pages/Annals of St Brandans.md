@@ -1,0 +1,9 @@
+- Annals of St Brandans
+- Over a hundred years of the abbey's annals, from 1230 to 1350.
+- I've Read...
+- After Abbess Nonna's death, the 'double foundation' is dissolved and the monastery is reformed to accept only male novices. At this point the ink changes. The helpful scribe explains that for the new foundation, the Abbot has mandated stargall, not yewgall, ink. He outlines the differences (use of Inks of Containment techniques with a Sky, not Nectar, context) but doesn't trouble to explain why.
+- I'm Reading...
+- Three events of particular interest are recorded: an endowment by Eva de Braose, widow of the Marcher Lord Gwilym Ddu ('Black William), which enables an expansion of the Abbey; the construction of the Winter Tower, which is dedicated to the Madrugad; and the death 'by poisoning and Arts unsanctioned' of Abbess Nonna...
+- [[Tally Price]] x4, [[Written in Latin]], [[Mystery: Winter]] x4, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Winter]] x4
+- #Books #Mastered
+- [[Memory]]: [[Memory: Regret]]

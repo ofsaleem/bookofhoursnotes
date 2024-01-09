@@ -1,0 +1,5 @@
+- ![image.png](../assets/image_1700901731857_0.png)
+- Midwife's Assistance
+- As somber as autumn, as kind as autumn. She also likes her beer. [Make use of the Midwife's help before dawn.]
+- [[Grail]] x2, [[Heart]], [[Assistance]], [[An Introduction]]
+- #Assistants

@@ -1,0 +1,2 @@
+- #Workstations hints: [[Forge]], [[Nectar]], [[Scale]], [[Heart]]
+- ![image.png](../assets/image_1701207950535_0.png)

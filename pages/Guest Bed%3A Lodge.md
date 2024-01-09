@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700892467125_0.png)
+- Occupant: ![image.png](../assets/image_1700892478981_0.png)
+- [[My Bed: Lodge]]

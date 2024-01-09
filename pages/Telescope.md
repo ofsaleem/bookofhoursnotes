@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700896773178_0.png)
+- #Workstations hints: [[Forge]], [[Moon]], [[Rose]], [[Sky]]
+- challenges: [[Evolve via Horomachistry]], [[Prentice-level Challenges]] x5, [[Scholar-level Challenges]] x10, [[Keeper-level Challenges]] x15

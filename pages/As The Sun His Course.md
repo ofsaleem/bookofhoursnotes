@@ -1,0 +1,4 @@
+- As The Sun His Course
+- Joel of the Bridge, a retired soldier and sometime tollkeeper, wrote this epic poem about Alexander's famously inexplicable decision at Issus to withdraw from the war with the Achaemenids, and his subsequent return to Macedonia.
+- [[Tally Price]] x5, [[Written in Aramaic]], [[Mystery: Edge]] x8, [[Readable]], [[Thing]], [[Codex]]
+- #Books

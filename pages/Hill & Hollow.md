@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701418794640_0.png)
+- Hill & Hollow
+- The ways of the hill-children and the gods-from-stone. Old paths, old secrets, the songs that still echo beneath the earth.
+- [[Moon]], [[Scale]], [[Skill]], [[Birdsong]], [[Committed]], [[Attuned: Chor]], [[Effective Against Infestations]]

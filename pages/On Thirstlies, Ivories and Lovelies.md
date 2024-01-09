@@ -1,0 +1,4 @@
+- On Thirstlies, Ivories and Lovelies
+- Fionna Ayrshire recounts her visits in dreams to the 'Red Church' in the Mansus, and her conversations with the Names of the Grail.
+- [[tally price]] x2, [[Mystery: Grail]] x10, [[readable]], [[thing]], [[Codex]]
+- #Books

@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1700993782895_0.png)
+- Written in Kernewek Henavek
+- A forgotten language.

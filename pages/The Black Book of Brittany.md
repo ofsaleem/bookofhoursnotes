@@ -1,0 +1,4 @@
+- The Black Book of Brittany
+- A volume of ink-lore gifted to St Brandan's by Brian of Brittany, who was made Earl of Cornwall after the Norman Conquest.
+- [[Tally Price]] x4, [[Mystery: Moon]] x12, [[Readable]], [[Thing]], [[Codex]]
+- #Books

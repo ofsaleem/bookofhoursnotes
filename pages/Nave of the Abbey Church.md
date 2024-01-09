@@ -1,0 +1,18 @@
+- Nave of the Abbey Church
+  For a thousand years the Unconquered Sun has been worshipped here in all his Aspects - though since the heresies of the Intercalate, many of those aspects are considered distinct Hours in their own right, and the Sun's death and birth are both now celebrated.
+- The Abbey Church used to be more golden, but many of the valuables were lost at the Abbey's dissolution, including the original stained glass. These magnificent windows are of recent manufacture, financed by the eighth Librarian, Greene, who was a believer of the Second Dawn variety.
+- [[Instrument: Organ]]
+- [[Solar Altar]]
+- [[Nave of the Abbey Church left left windowsill]]
+	- [[Unhatched Hymns]]
+	- [[The Gospel of Zacchaeus]]
+	- [[Nyn's Cages (Avignon Text)]]
+- [[Nave of the Abbey Church left middle windowsill]]
+- [[Nave of the Abbey Church left right windowsill]]
+- [[Nave of the Abbey Church middle left windowsill]]
+- [[Nave of the Abbey Church middle middle windowsill]]
+- [[Nave of the Abbey Church middle right windowsill]]
+- [[Nave of the Abbey Church right left windowsill]]
+- [[Nave of the Abbey Church right middle windowsill]]
+- [[Nave of the Abbey Church right right windowsill]]
+-

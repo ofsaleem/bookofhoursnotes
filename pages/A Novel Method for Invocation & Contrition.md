@@ -1,0 +1,4 @@
+- A Novel Method for Invocation & Contrition
+- Ingenious and rather beautiful techniques for entreating the Names of the Hours, developed by Rory Morrow, who styled himself 'the Sage-Knight'.
+- [[Tally Price]] x2, [[Written in Ericapaean]], [[Mystery: Rose]] x14, [[Readable]], [[Thing]], [[Codex]]
+- #Books

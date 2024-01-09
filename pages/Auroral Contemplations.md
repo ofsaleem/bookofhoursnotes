@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701097309084_0.png)
+- Auroral Contemplations
+- 'To know what will pass in what has passed.' The practitioners of this discipline see endings and beginnings, passages and transitions, in the same mode as dawn and sunset.
+- [[Edge]], [[Lantern]], [[Skill]], [[Illumination]], [[Nyctodromy]]

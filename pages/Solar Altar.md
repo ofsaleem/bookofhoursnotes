@@ -1,0 +1,3 @@
+- #Workstations hints: [[Sky]], [[Winter]], [[Lantern]]
+- ![image.png](../assets/image_1700914241629_0.png)
+- challenges: [[Evolve via Hushery]]

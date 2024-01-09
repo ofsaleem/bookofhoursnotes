@@ -1,0 +1,3 @@
+- #Workstations hints: [[Sky]], [[Winter]], [[Forge]]
+- ![image.png](../assets/image_1700998125093_0.png)
+- challenges: [[Evolve via Ithastry]]

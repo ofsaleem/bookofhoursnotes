@@ -1,0 +1,9 @@
+- The Wind's Ruin
+- The second volume of the meditations of Abbot Thomas of the Abbey of the Black Dove.
+- I've Read...
+- Abbot Thomas clearly regrets his 'storm-years', and much of the book is taken up with his thoughts on penitence; but there are hints also that he misses those years, and the companionship of his 'sword-brother, ship-brother' Trygve.
+- I'm Reading...
+- Abbot Thomas speaks of his time as a raider, when his name was not Thomas but Toke, 'scything the sea, striving for plunder'…
+- [[Tally Price]] x4, [[Mystery: Grail]] x4, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Grail]] x4
+- #Books #Mastered
+- [[Memory]]: [[Beguiling Melody]]

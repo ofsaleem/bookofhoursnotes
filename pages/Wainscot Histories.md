@@ -1,0 +1,9 @@
+- Wainscot Histories
+- Subtitled 'Stories from Behind the Walls': a miscellany of non-traditional histories, including battles not generally acknowledged and countries which appear on no map, told in a playful, apparently fictional manner.
+- I've Read...
+- 'It was common in that time to speak of the Division of the Sun; by which Contemporaries understood, the irruption of Barbarian Forces, and of their uncouth Gods.'
+- I'm Reading...
+- Gore does not mention the Mansus directly, but constant coy metaphorical references to 'Ascending the Staircase of Years', to 'the Doors of Sleep', and to 'the Blue Light of Dawn' suggest he had commerce with the unseen world.
+- [[Tally Price]] x3, [[Mystery: Lantern]] x6, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Lantern]] x6
+- #Books #Mastered
+- [[Memory]]: [[Memory: Contradiction]]

@@ -1,0 +1,4 @@
+- The Ascendant
+- The Edge-long Dardesh boasts of her victories over her brother-enemy Tareg in the days of the Shadowless Empire.
+- [[Tally Price]] x4, [[Mystery: Edge]] x10, [[Written in Hyksos]], [[Readable]], [[Thing]], [[Codex]]
+- #Books

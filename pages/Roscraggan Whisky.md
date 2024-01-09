@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1700980893559_0.png)
+- Roscraggan Whisky (Bottle)
+- The favourite tipple of Sir David Greene, eighth Librarian of Hush House.
+- [[Forge]], [[Rose]] x2, [[Thing]], [[Liquid]], [[Beverage]], [[Restorative]]

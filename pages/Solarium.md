@@ -1,0 +1,11 @@
+- Solarium
+- This room was once for the meditation of favoured visionaries. Here White Matilda prophesied the victory of the Iron King in the Wars of the Roads, much as it would occur three hundred years later. (She got his name wrong, though.)
+- [[Solarium left shelf]]
+	- [[As The Sun His Course]]
+	- [[A Second Glory]]
+	- [[The White Book of Brittany]]
+	- [[The Most Sorrowful End of the Lady Nonna]]
+- [[Solarium right table]]
+	- [[How the End will Begin]]
+	- [[The Mirror of Melancthe]]
+	-

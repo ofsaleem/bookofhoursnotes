@@ -1,0 +1,3 @@
+- ![image.png](../assets/image_1701065808929_0.png)
+- Written in Aramaic
+- The language of Aram, and all her many children these three thousand years and more. [The Librarian reads Aramaic, but don't assume others can.]

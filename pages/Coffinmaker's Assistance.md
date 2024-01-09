@@ -1,0 +1,5 @@
+- ![image.png](../assets/image_1700903080212_0.png)
+- Coffinmaker's Assistance
+- A tamer of trees, a worker of woods, a consigner of cadavers. He has also been known to try his hand, very diffidently, at poetry. [Make use of the Coffinmaker's help before dawn.]
+- [[Sky]], [[Winter]] x2, [[Assistance]], [[An Introduction]]
+- #Assistants

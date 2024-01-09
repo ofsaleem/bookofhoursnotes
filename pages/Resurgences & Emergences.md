@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701761646185_0.png)
+- Resurgences & Emergences
+- Birth and death are only directions. Between the two we find a crossroads.
+- [[Grail]], [[Moth]], [[Skill]], [[Preservation]], [[Committed]], [[Attuned: Chor]], [[Effective Against Infestations]]

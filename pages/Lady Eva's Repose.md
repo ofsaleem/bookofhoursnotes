@@ -1,0 +1,5 @@
+- Lady Eva's Repose
+- A 'meditation' on the drowning of Lady Eva Dewulf and her two grandchildren, written in the years when the estate was abandoned by Father Theo, once the Dewulf family chaplain, one of the few to remain on the Isle in those desolate years.
+- [[Tally Price]] x3, [[Mystery: Winter]] x4, [[Readable]], [[Thing]], [[Codex]], [[Mastery: Winter]] x4
+- #Books #Mastered
+- [[Memory]]: [[Memory: Regret]]

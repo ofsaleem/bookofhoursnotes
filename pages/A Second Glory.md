@@ -1,0 +1,4 @@
+- A Second Glory
+- The priest Juceh celebrates the extirpation of the Gods-who-were-stone, those Hours who preceded humanity.
+- [[Tally Price]] x4, [[Written in Deep Mandaic]], [[Mystery: Winter]] x12, [[Readable]], [[Thing]], [[Codex]]
+- #Books

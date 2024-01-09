@@ -1,0 +1,4 @@
+- ![image.png](../assets/image_1701569159837_0.png)
+- Pearl & Tide
+- The depths of the sea, the waves upon the shore, and the memories of their withdrawal.
+- [[Moon]], [[Rose]], [[Skill]], [[The Bosk]], [[Nyctodromy]]
