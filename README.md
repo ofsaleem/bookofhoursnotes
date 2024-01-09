@@ -1,0 +1,1 @@
+This repository exists as a backup and for public consumption of my detailed notes for the game, [Book of Hours](https://weatherfactory.biz/book-of-hours/) by Weather Factory. I made these notes in [Logseq](https://logseq.com), so they are plain-text readable, but not necessarily plain-text navigable.
